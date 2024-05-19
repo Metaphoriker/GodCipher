@@ -1,4 +1,4 @@
-![download](https://github.com/GodCipher/GodCipher/assets/50031457/21c15d22-96d2-412c-9568-767bd3e44aa9)
+![OIG2](https://github.com/GodCipher/GodCipher/assets/50031457/fb0399bc-7dea-4065-9a2f-255d08b8cf56)
 
 
 <!--
