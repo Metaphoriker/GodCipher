@@ -1,4 +1,4 @@
-![OIG2](https://github.com/GodCipher/GodCipher/assets/50031457/fb0399bc-7dea-4065-9a2f-255d08b8cf56)
+![DALLE-2024-07-26-18 20](https://github.com/user-attachments/assets/492a486f-6aa5-438b-a34a-11ec95145e7b)
 
 
 <!--
