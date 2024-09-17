@@ -1,5 +1,4 @@
-![DALLE-2024-07-26-18 20](https://github.com/user-attachments/assets/492a486f-6aa5-438b-a34a-11ec95145e7b)
-
+![steamuserimages-a akamaihd](https://github.com/user-attachments/assets/5711031f-bb04-4f37-96f2-c078e7f7a29c)
 
 <!--
 **GodCipher/GodCipher** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
