@@ -1,7 +1,4 @@
 ![steamuserimages-a akamaihd](https://github.com/user-attachments/assets/5711031f-bb04-4f37-96f2-c078e7f7a29c)
-
-[![Gist Image](https://gists-readme.yizack.com/api/pin?user=&id=493976c4fe936a7a87e2eeda32a9c1de&owner=true&theme=dark)](https://gist.github.com/godcipher/493976c4fe936a7a87e2eeda32a9c1de)
-
 <!--
 **GodCipher/GodCipher** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
